@@ -23,7 +23,7 @@
 
 
 <br><h1>DNI:</h1> 
-Proshipper, if I know you IRL exept for Oliver, Olive, Lucas, or Charlie, If your a bigot, or if you dont surport xenogenders and/or neopronouns, Boyfriends fans, if your a music profile, if you don't support irls, if you don't support people with undiagnosed mental disorders, CharlieXAlastor shippers, are on my kinlist DNI(see THIS to know), if you hate on furries for literally NO reason, Murder drones Panic AU(Y'all disgust me. I will hide you if I see you, HEAVY DNI EVEN IF YOU'RE A FRIEND! NO EXCEPTIONS!!!!!)
+Proshipper, if I know you IRL exept for Oliver, Olive, Lucas, or Charlie, If your a bigot, or if you dont surport xenogenders and/or neopronouns, Boyfriends fans, if your a music profile, if you don't support irls, if you don't support people with undiagnosed mental disorders, CharlieXAlastor shippers, are on my kinlist DNI, if you hate on furries for literally NO reason, Murder drones Panic AU(Y'all disgust me. I will hide you if I see you, HEAVY DNI EVEN IF YOU'RE A FRIEND! NO EXCEPTIONS!!!!!)
 
 <br><h1>Thin Ice:</h1> 
 Kaito Momota kinnies/hj, YBC enjoyers, MHA fans(You know why), people who have unreadable typing quirks(Im talking about you T), people who dont like cats, DSMP fans/srs, people in the Danganronpa fandom(you can enjoy the games and stuff but if you consider yourself in the fandom), people who ship Alastor with any character(RadioSilence is ok ig), if you kin Joker/Ren Amaiya/Akira(whatever tf his last name is)[I'm sorry but y'all could never be him😭]
