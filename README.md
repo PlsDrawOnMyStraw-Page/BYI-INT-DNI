@@ -6,6 +6,8 @@
 <h1>BYI:</h1>
 <br>I was a 4chan user. I like a lot of problematic media/media with problematic creators so be aware of that. sorry if i come off as rlly awkward or dry at first, i'm normally not like that i'm just kinda scared to talk to new ppl. most of my socials are on my page. I LOVE EMOJIS😍😍😍 I will use them in almost every message I send you. Also if I use incorrect grammar and/or I spell something wrong(that isnt slang or a missing apostrophe) PLEASE correct me!! I have PTSD and Schizophrenia from SA in my past and sometimes have really bad hallucinations/flashbacks often, I also get phantom touch sometimes, so if you cuddle with me or touch me on PonyTown, I might move away and tell you to not INT or to not touch me, I'm sorry if I offend you or anything by doing that, but I genuinely sometimes get uncomfortable in real life, I know its just pixles on a screen, but thats how bad my phantom touch is sometimes.
 
+<br>I hide people often on PonyTown, it's not that hard to get me to hide you or, if I need too, block you. If I'm covering somebody please let me know, because I don't want to cover peoples skins.
+
 
 
 <h1>INT:</h1>
